@@ -1,4 +1,4 @@
-# 
+# Turbo uniswap trading bot plugins para Mac OS | Melhor uniswap trading bot plugins para PC Windows. Com ordens stop-loss e monitoramento de baixa frequência — otimizado para máximo desempenho em cada plataforma.
 
 
 
